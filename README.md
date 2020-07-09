@@ -1,7 +1,7 @@
 ### Hi there I'm a UI/UX Designer, also interested in Marketing and a little bit of Coding 👋            
 
 
-                                 \\\\\\\
+                           \\\\\\\
                             \\\\\\\\\\\\
                           \\\\\\\\\\\\\\\
   -----------,-|           |C>   // )\\\\|

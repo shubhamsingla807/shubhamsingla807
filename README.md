@@ -1,4 +1,4 @@
-### Hi there,I'm Shubham Singla. I'm a UI/UX Designer and also interested in Marketing and alittle bit in coding. 👋
+### Hi there, I'm Shubham Singla. I'm a UI/UX Designer and also interested in Marketing and a little bit in coding. 👋
 ![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
 <!--
 **shubhamsingla807/shubhamsingla807** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
